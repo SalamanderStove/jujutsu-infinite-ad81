@@ -1,4 +1,4 @@
-#  
+#  Experience jujutsu infinite like never before with stealth Scripts for jujutsu infinite, the #1 Script. Includes one-hit kill and custom skins for
 
 
 
